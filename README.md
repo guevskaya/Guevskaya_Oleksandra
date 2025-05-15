@@ -1,2 +1,0 @@
-# Guevskaya_Oleksandra
-Practice
